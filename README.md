@@ -1,1 +1,1 @@
-# KVNDWYKBAFL171220240999172
+#  https://ujiberkala-dstj-dephub-go-id-qr-vi-rfid.github.io/KVNDWYKBAFL171220240999172/
